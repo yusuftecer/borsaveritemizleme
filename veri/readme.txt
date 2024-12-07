@@ -1,0 +1,1 @@
+temizlenmemiş veriler
